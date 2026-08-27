@@ -186,7 +186,7 @@ This can help businesses take proactive steps to improve customer retention.
 
 **Kodeeswaran A.S.**
 
-AI/ML Enthusiast | Software Developer
+AI/ML Enthusiast | Software Developer | Cybersecurity Enthusiast
 
 ---
 
